@@ -1,0 +1,3 @@
+- 👽 Hi, I’m @SofiaStrawbery
+- 🎨 I’m interested in art
+- 🌱 I’m currently learning english because it's not my foreign language
